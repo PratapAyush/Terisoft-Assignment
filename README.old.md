@@ -1,1 +1,0 @@
-# tericsoft-assignment
